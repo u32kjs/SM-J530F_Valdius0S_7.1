@@ -1,0 +1,1 @@
+# SM-J530F_Valdius0S_7.1
